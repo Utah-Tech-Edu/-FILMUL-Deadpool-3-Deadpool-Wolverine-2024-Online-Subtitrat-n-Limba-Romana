@@ -1,4 +1,4 @@
-# [FILMUL] Deadpool 3 (2024) Online Subtitrat în Limba Romana
+# [FILMUL] Deadpool 3 "Deadpool & Wolverine" (2024) Online Subtitrat în Limba Romana
 
 Urmăriți Deadpool 3 (Deadpool & Wolverine) film online in Română. Filme online subtitrat in romana alaturi de familie sau versiunea originala gratuit fara reclame enervante la calitate HD.
 
